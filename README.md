@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @astrfitri
 - 👀 I’m interested in organization & people development, organizational culture, healthy work environment, beauty industry
 - 🌱 I’m currently learning human resources communication development
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
 <!---
